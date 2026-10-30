@@ -1,2 +1,0 @@
-# Jamal-Hutcherson
-Jamal
